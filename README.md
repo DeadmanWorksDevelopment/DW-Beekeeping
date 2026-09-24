@@ -58,4 +58,4 @@ Chiliad Wildflower Honey
 Grapeseed Green Hills Honey
 Developed by Deadman Works Development
 
-Support:
+Support: https://discord.com/invite/tJ9EkS24Eq
